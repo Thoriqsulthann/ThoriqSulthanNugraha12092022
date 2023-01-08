@@ -1,2 +1,2 @@
 # ThoriqSulthanNugraha12092022
-Codingan 12 Agustus 2022
+Codingan 12 September 2022
